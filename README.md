@@ -17,7 +17,8 @@
 
 - 📫 How to reach me **dr.rohandavid@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1XzeL-1fPHRRmtZIRvdaQf20HwcCEwUKJPtaeGULgksY/edit?usp=sharing](https://docs.google.com/document/d/1XzeL-1fPHRRmtZIRvdaQf20HwcCEwUKJPtaeGULgksY/edit?usp=sharing)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1ItqCsvEIIha6x7eotsC6H4W8apG1pHM5/edit?usp=drive_link&ouid=116871587888363554891&rtpof=true&sd=true]
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
